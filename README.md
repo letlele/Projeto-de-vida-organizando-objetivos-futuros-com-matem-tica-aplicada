@@ -1,1 +1,2 @@
-# Projeto-de-vida-organizando-objetivos-futuros-com-matem-tica-aplicada
+# Organizando-objetivos-futuros
+ícone Projeto de vida: organizando objetivos futuros com matemática aplicada Projeto de vida: organizando objetivos futuros com matemática aplicada
